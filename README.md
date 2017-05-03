@@ -96,7 +96,7 @@
 
 **2.00pm**
 
-* Check in to [Ria Hotel](http://riahotel.blogspot.my/2009/10/contact-us.html)
+* Check in to [Ria Hotel](http://riahotel.blogspot.my/2009/10/contact-us.html) or [Simpang Mengayau Chalet](http://simpangmengayauchalet.blogspot.my)
 
 ---
 
