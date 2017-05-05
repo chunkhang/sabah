@@ -46,11 +46,6 @@
 
 **9.00 pm**
 
-* Drive to [IMAGO Shopping Mall](http://sabahbah.com/shopping/imago-kk-times-square/)
-* Chill at mall
-
-**10.00 pm**
-
 * Drive back to hostel
 
 ---
@@ -63,7 +58,7 @@
 
 **7.30 am**
 
-* Stop at [Wun Chiap Restaurant](http://www.sabaheats.com/wun-chiap-restaurant-best-tamparuli-noodle-tamparuli/)
+* Visit [Wun Chiap Restaurant](http://www.sabaheats.com/wun-chiap-restaurant-best-tamparuli-noodle-tamparuli/)
 * Tamparuli mee for breakfast
 
 **8.30 am** 
@@ -78,13 +73,38 @@
 
 * Drive to [Kundasang](http://wikitravel.org/en/Kundasang)
 
-* Ranau
+**11.30 am**
 
-* Poring Hot Spring
+* Visit [Desa Cattle Dairy Farm](http://www.sabahtourism.com/destination/desa-cattle-dairy-farm)
 
-**9.00 pm**
+**1.00 pm**
 
-* Listen to jazz at [Sullys Bar](http://sabahbah.com/nightlife/sullys-bar/)
+* Lunch at [89 Station Restaurant](https://www.tripadvisor.com.my/Restaurant_Review-g3845613-d10187080-Reviews-89_Station_Restaurant-Kundasang_Ranau_Sabah.html)
+
+**2.00 pm**
+
+* Visit [Kundasang War Memorial](http://www.sabahtourism.com/destination/kundasang-war-memorial)
+
+**3.00 pm**
+
+* Drive back to hostel
+
+**7.00 pm**
+
+* Walk to [Yu Kee Bak Kut Teh](http://www.mysabah.com/wordpress/yu-kee-bak-kut-teh/)
+* Bak Kut Teh for dinner
+
+**8.30 pm**
+
+* Walk along waterfront to [IMAGO Shopping Mall](http://sabahbah.com/shopping/imago-kk-times-square/)
+
+**9.30 pm**
+
+* Visit [Sullys Bar](http://sabahbah.com/nightlife/sullys-bar/)
+
+**11.00 pm**
+
+* Walk back to hostel
 
 ---
 
