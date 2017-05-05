@@ -110,13 +110,34 @@
 
 ### Day 3: Thursday
 
-**8.30am**
+**7.00 am**
 
-* Breakfast at hostel
+* Drive to [Foo Phing Dim Sum](https://www.tripadvisor.com.my/Restaurant_Review-g298307-d10070020-Reviews-Foo_Phing_Dim_Sum-Kota_Kinabalu_Kota_Kinabalu_District_West_Coast_Division_Sabah.html)
 
-**2.00pm**
+**7.30 am**
 
-* Check in to [Ria Hotel](http://riahotel.blogspot.my/2009/10/contact-us.html) or [Simpang Mengayau Chalet](http://simpangmengayauchalet.blogspot.my)
+* Dim sum for breakfast
+
+**9.00 am**
+
+* SOMETHING
+
+**12.00 pm**
+
+* Visit [Sinsuran Sang Nyuk Mee](https://www.tripadvisor.com.my/Restaurant_Review-g298307-d9749557-Reviews-Sinsuran_Sang_Nyuk_Mee-Kota_Kinabalu_Kota_Kinabalu_District_West_Coast_Division_S.html)
+* Sang nyuk mee for lunch
+
+**1.00 pm**
+
+* Drive to [Merrimas Villa](http://www.merrimasvilla.com/accommodation.php?chalet=hs)
+
+**5.00 pm**
+
+* Check in to villa
+
+**7.30 pm**
+
+* Dinner at Merrimas Restaurant
 
 ---
 
@@ -124,7 +145,7 @@
 
 **4.30am**
 
-* Drive to [Tip of Borneo](http://www.sabahtourism.com/destination/tip-borneo-tanjung-simpang-mengayau)
+* Drive to [Tip of Borneo](http://www.mysabah.com/wordpress/the-tip-of-borneo-tanjung-simpang-mengayau-in-kudat/)
 
 **6.00 am**
 
@@ -140,4 +161,12 @@
 * Check out from hotel
 * Drive back to Kota Kinabalu
 
+* CORAL FLYER
 
+**8.30 pm**
+
+* Drive to  airport
+
+**11.00 pm**
+
+* Depart from airport
