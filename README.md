@@ -8,22 +8,25 @@
 * Cab to [Houng Kee Restaurant](https://www.eatbah.com/fish-noodle-houng-kee-restaurant/)
 * Fish noodle for lunch
 
-**1.30 pm** 
+**1.30 pm**
+
+* Visit [Kedai Kopi Fook Yuen](https://foursquare.com/v/kedai-kopi-fook-yuen-富源茶餐室/4bfe7cfd8992a593da92adb0)
+* Roti kahwin and teh c ping for snack
+
+**2.00 pm**
 
 * Cab to [Akinabalu Youth Hostel](http://www.akinabaluyh.com)
+
+**2.30 pm**
+
 * Check in to hostel
 
-**2.30 pm** 
+**3.30 pm** 
 
 * Walk to [Wisma Sabah](https://foursquare.com/v/wisma-sabah/4bc96e5368f976b099615d83)
 * Rent a car from a [car rental agency](https://www.tripadvisor.com.my/ShowTopic-g298307-i9429-k492351-Rental_a_car-Kota_Kinabalu_Kota_Kinabalu_District_West_Coast_Division_Sabah.html)
 
-**3.30 pm**
-
-* Drive to [Sabah Museum](http://www.museum.sabah.gov.my)
-* Visit museum
-
-**5.00 pm**
+**4.30 pm**
 
 * Drive to [Shangri-La's Tanjung Aru Resort & Spa](http://www.shangri-la.com/kotakinabalu/tanjungaruresort/about/)
 
@@ -167,12 +170,34 @@
 
 * Breakfast at villa
 
-**11.00am**
+**9.30am**
 
-* Check out from villa
-* Drive back to Kota Kinabalu
+* Check out of villa
+* Drive to [Kota Belud](http://placesmap.net/MY/Dewan-Masyarakat-Tun-Said-Bin-Keruak-179368/)
 
-* CORAL FLYER
+**12.00 pm**
+
+* Visit [mee sup stalls](http://www.sabaheats.com/mee-sup-kota-belud/)
+* Mee Sup Kota Belud for lunch
+
+**1.00 pm**
+
+* Drive to [Jesselton Point](http://www.kotakinabalu.info/jesselton-point.htm)
+
+**3.00 pm**
+
+* Ferry to [Pulau Sapi](http://www.mysabah.com/wordpress/sapi-island/)
+
+**4.00 pm**
+
+* Experience [Coral Flyer](https://www.tripadvisor.com.my/Attraction_Review-g1761622-d6643733-Reviews-Coral_Flyer-Pulau_Gaya_Kota_Kinabalu_District_West_Coast_Division_Sabah.html)
+
+**5.00 pm**
+
+* Ferry back to Kota Kinabalu
+* Return car
+
+**q**
 
 Return car
 
