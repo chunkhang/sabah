@@ -170,18 +170,23 @@
 
 * Breakfast at villa
 
-**9.30 am**
+**9.00 am**
 
 * Check out of villa
 * Drive to [Kota Belud](http://placesmap.net/MY/Dewan-Masyarakat-Tun-Said-Bin-Keruak-179368/)
 
-**12.00 pm**
+**11.30 pm**
 
 * Visit [mee sup stalls](http://www.sabaheats.com/mee-sup-kota-belud/)
 * Mee sup Kota Belud for lunch
 
-**1.00 pm**
+**12.30 pm**
 
+* Drive to Akinabalu Youth Hostel
+
+**2.00 pm**
+
+* Store luggage at hostel
 * Drive to Wisma Sabah
 
 **2.30 pm**
@@ -200,6 +205,11 @@
 **5.30 pm**
 
 * Ferry back to Jesselton Point
+* Walk back to hostel
+
+**6.30 pm**
+
+* Retrieve luggage from hostel
 * Cab to [QQ Cafe](http://www.juiceapac.name/solutions/qqcafekk/)
 
 **7.00 pm**
