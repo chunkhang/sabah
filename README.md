@@ -120,11 +120,23 @@
 
 **9.00 am**
 
-* SOMETHING
+* Drive to [Atkinson Clock Tower](http://www.sabahtourism.com/destination/atkinson-clock-tower)
+
+**9.30 am**
+
+* Trek to [Signal Hill Observatory Platform](http://www.thestar.com.my/metro/focus/2016/07/30/for-a-birds-eye-view-of-kota-kinabalu-hike-up-citys-highest-point-signal-hill-via-footpath-or-jungle/)
+
+**11.00 am**
+
+* Walk back to hostel
+
+**11.30 am**
+
+* Check out of hostel
 
 **12.00 pm**
 
-* Visit [Sinsuran Sang Nyuk Mee](https://www.tripadvisor.com.my/Restaurant_Review-g298307-d9749557-Reviews-Sinsuran_Sang_Nyuk_Mee-Kota_Kinabalu_Kota_Kinabalu_District_West_Coast_Division_S.html)
+* Drive to [Sinsuran Sang Nyuk Mee](https://www.tripadvisor.com.my/Restaurant_Review-g298307-d9749557-Reviews-Sinsuran_Sang_Nyuk_Mee-Kota_Kinabalu_Kota_Kinabalu_District_West_Coast_Division_S.html)
 * Sang nyuk mee for lunch
 
 **1.00 pm**
@@ -143,7 +155,7 @@
 
 ### Day 4: Friday
 
-**4.30am**
+**4.30 am**
 
 * Drive to [Tip of Borneo](http://www.mysabah.com/wordpress/the-tip-of-borneo-tanjung-simpang-mengayau-in-kudat/)
 
@@ -153,19 +165,20 @@
 
 **7.30 am**
 
-* Drive back to hotel
-* Breakfast at hotel
+* Breakfast at villa
 
 **11.00am**
 
-* Check out from hotel
+* Check out from villa
 * Drive back to Kota Kinabalu
 
 * CORAL FLYER
 
-**8.30 pm**
+Return car
 
-* Drive to  airport
+**9.30 pm**
+
+* Cab to airport
 
 **11.00 pm**
 
