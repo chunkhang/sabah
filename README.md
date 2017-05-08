@@ -170,7 +170,7 @@
 
 * Breakfast at villa
 
-**9.30am**
+**9.30 am**
 
 * Check out of villa
 * Drive to [Kota Belud](http://placesmap.net/MY/Dewan-Masyarakat-Tun-Said-Bin-Keruak-179368/)
@@ -182,7 +182,12 @@
 
 **1.00 pm**
 
-* Drive to [Jesselton Point](http://www.kotakinabalu.info/jesselton-point.htm)
+* Drive to Wisma Sabah
+
+**2.30 pm**
+
+* Return car
+* Walk to [Jesselton Point](http://www.kotakinabalu.info/jesselton-point.htm)
 
 **3.00 pm**
 
@@ -190,16 +195,16 @@
 
 **4.00 pm**
 
-* Experience [Coral Flyer](https://www.tripadvisor.com.my/Attraction_Review-g1761622-d6643733-Reviews-Coral_Flyer-Pulau_Gaya_Kota_Kinabalu_District_West_Coast_Division_Sabah.html)
+* Ride the [Coral Flyer](https://www.tripadvisor.com.my/Attraction_Review-g1761622-d6643733-Reviews-Coral_Flyer-Pulau_Gaya_Kota_Kinabalu_District_West_Coast_Division_Sabah.html)
 
-**5.00 pm**
+**5.30 pm**
 
-* Ferry back to Kota Kinabalu
-* Return car
+* Ferry back to Jesselton Point
+* Cab to [QQ Cafe](http://www.juiceapac.name/solutions/qqcafekk/)
 
-**q**
+**7.00 pm**
 
-Return car
+* Buffet for dinner
 
 **9.30 pm**
 
