@@ -178,7 +178,7 @@
 **12.00 pm**
 
 * Visit [mee sup stalls](http://www.sabaheats.com/mee-sup-kota-belud/)
-* Mee Sup Kota Belud for lunch
+* Mee sup Kota Belud for lunch
 
 **1.00 pm**
 
