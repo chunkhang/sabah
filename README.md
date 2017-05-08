@@ -6,7 +6,7 @@
 
 * Arrive at [Kota Kinabalu Airport](https://www.kotakinabaluairport.com)
 * Cab to [Houng Kee Restaurant](https://www.eatbah.com/fish-noodle-houng-kee-restaurant/)
-* Fish noodle for lunch
+* Fish noodle and pork dumplings for lunch
 
 **1.30 pm**
 
@@ -45,7 +45,7 @@
 
 **7.30 pm**
 
-* Seafood for dinner
+* Seafood and coconut pudding for dinner
 
 **9.00 pm**
 
