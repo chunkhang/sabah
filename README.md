@@ -177,7 +177,7 @@
 
 **12.30 pm**
 
-* Fast food for lunch
+* Food court and Yoyo Cafe for lunch
 
 **1.30 pm**
 
