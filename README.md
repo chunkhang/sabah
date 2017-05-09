@@ -158,9 +158,9 @@
 
 ### Day 4: Friday
 
-**4.30 am**
+**5.30 am**
 
-* Drive to [Tip of Borneo](http://www.mysabah.com/wordpress/the-tip-of-borneo-tanjung-simpang-mengayau-in-kudat/)
+* Walk to [Tip of Borneo](http://www.mysabah.com/wordpress/the-tip-of-borneo-tanjung-simpang-mengayau-in-kudat/)
 
 **6.00 am**
 
@@ -170,49 +170,38 @@
 
 * Breakfast at villa
 
-**9.00 am**
+**8.30 am**
 
 * Check out of villa
-* Drive to [Kota Belud](http://placesmap.net/MY/Dewan-Masyarakat-Tun-Said-Bin-Keruak-179368/)
-
-**11.30 pm**
-
-* Visit [mee sup stalls](http://www.sabaheats.com/mee-sup-kota-belud/)
-* Mee sup Kota Belud for lunch
+* Drive to [Suria Sabah](http://www.suriasabah.com.my)
 
 **12.30 pm**
 
-* Drive to Akinabalu Youth Hostel
+* Fast food for lunch
 
-**2.00 pm**
+**1.30 pm**
 
-* Store luggage at hostel
-* Drive to Wisma Sabah
-
-**2.30 pm**
-
-* Return car
 * Walk to [Jesselton Point](http://www.kotakinabalu.info/jesselton-point.htm)
+* Ferry to [Pulau Sapi](http://www.mysabah.com/wordpress/sapi-island/)
 
 **3.00 pm**
 
-* Ferry to [Pulau Sapi](http://www.mysabah.com/wordpress/sapi-island/)
+* Ride the [Coral Flyer](https://www.tripadvisor.com.my/Attraction_Review-g1761622-d6643733-Reviews-Coral_Flyer-Pulau_Gaya_Kota_Kinabalu_District_West_Coast_Division_Sabah.html)
 
 **4.00 pm**
 
-* Ride the [Coral Flyer](https://www.tripadvisor.com.my/Attraction_Review-g1761622-d6643733-Reviews-Coral_Flyer-Pulau_Gaya_Kota_Kinabalu_District_West_Coast_Division_Sabah.html)
+* Ferry back to Jesselton Point
+* Walk to Wisma Sabah
+
+**5.00 pm**
+
+* Return car
 
 **5.30 pm**
 
-* Ferry back to Jesselton Point
-* Walk back to hostel
-
-**6.30 pm**
-
-* Retrieve luggage from hostel
 * Cab to [QQ Cafe](http://www.juiceapac.name/solutions/qqcafekk/)
 
-**7.00 pm**
+**6.30 pm**
 
 * Buffet for dinner
 
