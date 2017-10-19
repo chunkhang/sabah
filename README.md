@@ -1,5 +1,7 @@
 # A Trip to Sabah
 
+![Sabah Sunset](sabah_sunset.jpg)
+
 ### Day 1: Tuesday
 
 **12.00 pm** 
